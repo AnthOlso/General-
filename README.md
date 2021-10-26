@@ -1,1 +1,1 @@
-# General-
+# General- Hi, my name is Anthony I am student at Mid-State Technical College. I am new to Cybersecurity but am very passionate for it. I love anything to do with computers. I am an avid gamer FPS is my favorite genre. Lately I have been messing around with Linux figuring out stuff on my own for personal experience.
